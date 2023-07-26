@@ -1,0 +1,1 @@
+La tolerancia significa el respeto a las ideas, creencias o prácticas de los demás cuando son diferentes o contrarias a las propias, así como el reconocimiento, la aceptación y el aprecio al plu- ralismo cultural, a las formas de expresión, a los derechos humanos de los demás y a la diversi- dad del aspecto, situación.
